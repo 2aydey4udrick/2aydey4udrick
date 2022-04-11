@@ -1,0 +1,2 @@
+ - For the Last time, 24yd means Zayd
+ - When was the last time you heard another Zayd before?
